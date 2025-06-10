@@ -1,4 +1,4 @@
- Hi there! , I’m Frizzz⚡
+ ##Hi there! , I’m Frizzz⚡
 
 💻 Cyber Security Enthusiast | eksplorasi  **Network Security**
 
