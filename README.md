@@ -4,5 +4,5 @@
 🧠 Belajar dan eksplorasi **Web Pentesting**, dan **Network Security**
 
 📡 Let’s Connect:
-📫 Email: [you@example.com]
+📫 Email: [firstianyusrilkisnandaa@gmail.com]
 
