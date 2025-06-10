@@ -1,7 +1,8 @@
 🕶️ Hey, I’m Frizzz⚡
 “In a world full of bugs, be the patch.”
 
-![Glitch Abstract](https://media.giphy.com/media/3o6ZtaO9BZHcOjmErm/giphy.gif)
+![Neon DNA Snake](https://media.giphy.com/media/iicDrNGWxHmDrKenna/giphy.gif)
+
 
 
 
