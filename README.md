@@ -1,7 +1,8 @@
-🕶️ Hey, I’m Frizzz – Code by Day, Hack Ethically by Night ⚡
+🕶️ Hey, I’m Frizzz⚡
 “In a world full of bugs, be the patch.”
 
-![Matrix Snake](https://media.giphy.com/media/LmNwrBhejkK9EFP504/giphy.gif)
+![Glitch Abstract](https://media.giphy.com/media/3o6ZtaO9BZHcOjmErm/giphy.gif)
+
 
 
 🧠 Cyber Security Enthusiast | Bug Bounty Hunter (kadang)
