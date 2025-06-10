@@ -2,7 +2,7 @@
 
 💻 Cyber Security Enthusiast | eksplorasi  **Network Security**
 
-<img src="https://sample-img.com">
+<img src="(https://giphy.com/gifs/wakest-thingaday-RblRKcm53OwNy)">
 
 📡 Let’s Connect:
 
