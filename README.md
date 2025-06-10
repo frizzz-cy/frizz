@@ -1,8 +1,7 @@
-🕶️ Hey, I’m Frizzz⚡
+ Hi there! , I’m Frizzz⚡
 
-🧠 Cyber Security Enthusiast | Bug Bounty Hunter (kadang)
+💻 Cyber Security Enthusiast | eksplorasi  **Network Security**
 
-🧠 Belajar dan eksplorasi **Web Pentesting**, dan **Network Security**
 
 📡 Let’s Connect:
 
